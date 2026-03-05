@@ -1,5 +1,5 @@
 ## Hi there 👋
-My working hours as of right now are from 3:00PM MST - 6:00PM MST Monday through Friday.
+My working hours as of right now are from 4:00PM MST - 6:00PM MST Monday through Friday.
 On weekends my hours are from 9:00AM - 12:00PM!
 
 #### More info about me will be added soon...
